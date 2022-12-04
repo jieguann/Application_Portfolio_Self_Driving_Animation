@@ -3,11 +3,6 @@
 
 
 
-Uploading Self-Driving Animation.mp4…
-
-Uploading Self-Driving Animation.mp4…
-
-
 ![mmexport1568946328754](https://user-images.githubusercontent.com/60665347/205478720-594396ab-2ccd-4666-87ae-9c92094c3333.jpg)
 ![mmexport1568946379517](https://user-images.githubusercontent.com/60665347/205478723-ba6b2512-1dc6-4bd5-8e62-1cc0791ad6c1.jpg)
 ![mmexport1568946443580](https://user-images.githubusercontent.com/60665347/205478724-157e25ea-6b59-4ed2-9123-e5d080cabc03.jpg)
